@@ -3,7 +3,7 @@
 
 - I'm currently studying at **National University of Science and Technology**
 
-- I’m currently studying **Computer Science**
+- I’m currently pursuing **Computer Science**
 
 - Email: **moyomusawenkosi1521@gmail.com**
 
